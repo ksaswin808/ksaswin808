@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ksaswin808
 - 👀 I’m interested in ... Tech News
-- 🌱 I’m currently learning ... 10th Standard
+- 🌱 I’m currently learning ... 12th Standard
 - 💞️ I’m looking to collaborate on ... Study About Coding
 - 📫 How to reach me ... My Insta :- @n___igh__trid__er
 -                        My Whatsapp :- +918304852697
